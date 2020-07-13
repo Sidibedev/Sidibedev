@@ -1,4 +1,4 @@
-### Hi there, I'm [Mohamed aly!](https://mouhamedaly.dev) 👋
+### Hi there, I'm [Mouhamed aly!](https://mouhamedaly.dev) 👋 🤓
 
 <br />
 
