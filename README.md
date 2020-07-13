@@ -1,5 +1,3 @@
-![Header](https://github.com/Sidibedev/Sidibedev/blob/master/assets/header.png)
-
 ### Hi there, I'm [Mouhamed aly!](https://mouhamedaly.dev) 👋 🤓
 
 <br />
